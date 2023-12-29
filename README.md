@@ -1,7 +1,7 @@
 https://thaplammat.vn/thap-tan-nhiet-vuong-cau-truc-hoat-dong-cua-thap/- 👋 Hi, I’m @ThaptannhietTPC
 https://thaplammat.vn/thap-giai-nhiet-tpc-cau-truc-hoat-dong-cua-thap/
 https://thaplammat.vn/thap-tan-nhiet-cau-truc-cua-thap-trong-cong-nghiep/
-- 💞️ I’m looking to collaborate on ...
+https://thaplammat.vn/thap-tan-nhiet-vuong-hieu-qua-cua-thap-trong-cong-nghiep/
 - 📫 How to reach me ...
 
 <!---
