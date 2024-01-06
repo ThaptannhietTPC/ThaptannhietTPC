@@ -7,4 +7,4 @@ https://thaplammat.vn/tam-tan-nhiet-pvc-cau-truc-cua-tam-tan-nhiet-trong-thap-la
 https://thaplammat.vn/tam-lam-mat-pvc-uu-diem-cua-tam-lam-mat-rong-cong-nghiep/
 https://thaplammat.vn/motor-thap-tan-nhiet-cong-dung-chinh-cua-motor-thap-tan-nhiet/
 https://thaplammat.vn/thap-tan-nhiet-vuong-cau-truc-cua-thap-tan-nhiet-vuong/
---->
+https://thaplammat.vn/thap-lam-mat-nuoc-cong-nghiep-cau-truc-cua-thap-lam-mat-nuoc/
