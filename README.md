@@ -11,3 +11,4 @@ https://thaplammat.vn/thap-lam-mat-nuoc-cong-nghiep-cau-truc-cua-thap-lam-mat-nu
 https://thaplammat.vn/thap-giai-nhiet-tpc-cau-truc-cua-thap-giai-nhiet-tpc/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-cau-truc-cua-tam-tan-nhiet-nuoc-trong-thap/
 https://thaplammat.vn/thap-tan-nhiet-cooling-tower-cau-truc-co-ban-cua-thap-tan-nhiet/
+https://thaplammat.vn/tam-tan-nhiet-cong-dung-cua-tam-trong-thap-tan-nhiet/
