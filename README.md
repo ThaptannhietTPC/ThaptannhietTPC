@@ -14,3 +14,4 @@ https://thaplammat.vn/thap-tan-nhiet-cooling-tower-cau-truc-co-ban-cua-thap-tan-
 https://thaplammat.vn/tam-tan-nhiet-cong-dung-cua-tam-trong-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-pvc-dac-diem-chung-cua-tam-tan-nhiet/
 https://thaplammat.vn/motor-thap-giai-nhiet-cong-dung-cua-motor-trong-thap-giai-nhiet/
+https://thaplammat.vn/thap-giai-nhiet-cong-nghiep-cong-dung-hoat-dong-cua-thap/
