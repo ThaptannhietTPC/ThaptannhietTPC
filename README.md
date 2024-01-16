@@ -15,3 +15,4 @@ https://thaplammat.vn/tam-tan-nhiet-cong-dung-cua-tam-trong-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-pvc-dac-diem-chung-cua-tam-tan-nhiet/
 https://thaplammat.vn/motor-thap-giai-nhiet-cong-dung-cua-motor-trong-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-cong-nghiep-cong-dung-hoat-dong-cua-thap/
+https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-linh-kien-chinh-trong-thap-tan-nhiet/
