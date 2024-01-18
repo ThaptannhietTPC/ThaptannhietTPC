@@ -17,3 +17,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-cong-dung-cua-motor-trong-thap-giai-
 https://thaplammat.vn/thap-giai-nhiet-cong-nghiep-cong-dung-hoat-dong-cua-thap/
 https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-linh-kien-chinh-trong-thap-tan-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-cau-truc-va-hoat-dong-cua-thap-giai-nhiet/
+https://thaplammat.vn/thap-giai-nhiet-nuoc-cau-truc-hoat-dong-cua-thap-giai-nhiet/
