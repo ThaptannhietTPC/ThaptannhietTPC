@@ -20,3 +20,4 @@ https://thaplammat.vn/thap-giai-nhiet-cau-truc-va-hoat-dong-cua-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-cau-truc-hoat-dong-cua-thap-giai-nhiet/
 https://thaplammat.vn/thap-tan-nhiet-nguyen-ly-hoat-dong-cua-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-nguyen-ly-hoat-dong-cua-tam-trong-thap-tan-nhiet/
+https://thaplammat.vn/tam-tan-nhiet-pvc-mot-so-dac-diem-chung-cua-tam-trong-thap-tan-nhiet/
