@@ -22,3 +22,4 @@ https://thaplammat.vn/thap-tan-nhiet-nguyen-ly-hoat-dong-cua-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-nguyen-ly-hoat-dong-cua-tam-trong-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-pvc-mot-so-dac-diem-chung-cua-tam-trong-thap-tan-nhiet/
 https://thaplammat.vn/motor-thap-giai-nhiet-mot-so-thong-tin-lien-quan-den-motor/
+https://thaplammat.vn/thap-giai-nhiet-nuoc-cong-nghiep-mot-so-loai-thap-giai-nhiet-nuoc/
