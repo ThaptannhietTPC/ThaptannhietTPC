@@ -25,3 +25,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-mot-so-thong-tin-lien-quan-den-motor
 https://thaplammat.vn/thap-giai-nhiet-nuoc-cong-nghiep-mot-so-loai-thap-giai-nhiet-nuoc/
 https://thaplammat.vn/thap-giai-nhiet-hoat-dong-va-cac-linh-kien-chinh-cua-thap/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-mot-so-diem-can-biet-ve-thap-giai-nhiet-nuoc/
+https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-thong-tin-co-ban-gioi-thieu-ve-tam-tan-nhiet/
