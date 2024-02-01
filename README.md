@@ -28,3 +28,4 @@ https://thaplammat.vn/thap-giai-nhiet-nuoc-mot-so-diem-can-biet-ve-thap-giai-nhi
 https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-thong-tin-co-ban-gioi-thieu-ve-tam-tan-nhiet/
 https://thaplammat.vn/thap-tan-nhiet-so-do-nguyen-ly-lam-viec-cua-thap/
 https://thaplammat.vn/tam-tan-nhiet-mot-so-loai-tam-tan-nhiet-thuong-duoc-su-dung-nhieu/
+https://thaplammat.vn/tam-tan-nhiet-pvc-mot-so-uu-diem-cua-tam-tan-nhiet/
