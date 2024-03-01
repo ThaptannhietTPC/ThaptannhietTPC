@@ -34,3 +34,4 @@ https://thaplammat.vn/thap-giai-nhiet-nuoc-cong-nghiep-cau-truc-cua-thap-giai-nh
 https://thaplammat.vn/tam-lam-mat-nuoc-cau-truc-cua-tam-lam-mat-trong-thap-tan-nhiet/
 https://thaplammat.vn/thap-tan-nhiet-nguyen-ly-hoat-dong-cua-thap-tan-nhiet-2/
 https://thaplammat.vn/tam-tan-nhiet-cach-hoat-dong-cua-tam-tan-nhiet-trong-thap-tan-nhiet/
+https://thaplammat.vn/thap-giai-nhiet-nguyen-ly-lam-viec-cua-thap-giai-nhiet/
