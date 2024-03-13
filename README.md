@@ -41,3 +41,4 @@ https://thaplammat.vn/tam-tan-nhiet-pvc-cau-truc-cua-tam-tan-nhiet-trong-thap-la
 https://thaplammat.vn/motor-thap-giai-nhiet-chuc-nang-hoat-dong-cua-motor-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-cac-loai-thap-giai-nhiet-pho-bien-thuong-duoc-su-dung/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-nguyen-ly-hoat-dong-cua-thap-giai-nhiet-nuoc/
+https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-cong-dung-quan-trong-thap-tan-nhiet/
