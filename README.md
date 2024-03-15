@@ -42,3 +42,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-chuc-nang-hoat-dong-cua-motor-thap-g
 https://thaplammat.vn/thap-giai-nhiet-cac-loai-thap-giai-nhiet-pho-bien-thuong-duoc-su-dung/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-nguyen-ly-hoat-dong-cua-thap-giai-nhiet-nuoc/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-cong-dung-quan-trong-thap-tan-nhiet/
+https://thaplammat.vn/tam-tan-nhiet-mot-so-loai-tam-tan-nhiet-trong-thap-lam-mat/
