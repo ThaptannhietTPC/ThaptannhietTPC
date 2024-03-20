@@ -45,3 +45,4 @@ https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-cong-dung-quan-trong-thap-tan-nh
 https://thaplammat.vn/tam-tan-nhiet-mot-so-loai-tam-tan-nhiet-trong-thap-lam-mat/
 https://thaplammat.vn/motor-thap-giai-nhiet-nuoc-mot-so-hoat-dong-motor-trong-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-tpc-toi-uu-hieu-qua-lam-mat-cong-nghiep/
+https://thaplammat.vn/thap-giai-nhiet-nuoc-mot-so-linh-kien-trong-thap-giai-nhiet/
