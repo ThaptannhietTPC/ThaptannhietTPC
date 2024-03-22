@@ -47,3 +47,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-nuoc-mot-so-hoat-dong-motor-trong-th
 https://thaplammat.vn/thap-giai-nhiet-tpc-toi-uu-hieu-qua-lam-mat-cong-nghiep/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-mot-so-linh-kien-trong-thap-giai-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-loi-ich-cua-tam-tan-nhiet-trong-thap/
+https://thaplammat.vn/thap-tan-nhiet-tpc-8rt-cau-tao-thap-tan-nhiet/
