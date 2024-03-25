@@ -49,3 +49,4 @@ https://thaplammat.vn/thap-giai-nhiet-nuoc-mot-so-linh-kien-trong-thap-giai-nhie
 https://thaplammat.vn/tam-tan-nhiet-nuoc-mot-so-loi-ich-cua-tam-tan-nhiet-trong-thap/
 https://thaplammat.vn/thap-tan-nhiet-tpc-8rt-cau-tao-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-tpc-cau-truc-hoat-dong-trong-thap-tan-nhiet/
+https://thaplammat.vn/thap-giai-nhiet-cong-nghiep-cong-dung-chinh-cua-thap-giai-nhiet/
