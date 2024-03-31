@@ -52,3 +52,4 @@ https://thaplammat.vn/tam-tan-nhiet-tpc-cau-truc-hoat-dong-trong-thap-tan-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-cong-nghiep-cong-dung-chinh-cua-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-mot-so-chuc-nang-chinh-cua-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-tpc-mot-so-thanh-phan-bao-gom-cua-thap/
+https://thaplammat.vn/tam-tan-nhiet-pvc-mot-so-diem-can-duoc-biet-cua-tam-tan-nhiet/
