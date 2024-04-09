@@ -56,3 +56,4 @@ https://thaplammat.vn/tam-tan-nhiet-pvc-mot-so-diem-can-duoc-biet-cua-tam-tan-nh
 https://thaplammat.vn/motor-thap-giai-nhiet-cong-dung-chinh-cua-motor-thap-giai-nhiet/
 https://thaplammat.vn/thap-tan-nhiet-mot-so-linh-kien-chinh-trong-thap-tan-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-nguyen-tac-hoat-dong-cua-tam-trong-thap-lam-mat/
+https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-linh-kien-pho-bien-trong-thap/
