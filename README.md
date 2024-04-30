@@ -60,3 +60,4 @@ https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-linh-kien-pho-bien-trong-t
 https://thaplammat.vn/tam-tan-nhiet-pvc-nhung-uu-diem-cua-tam-tan-nhiet-trong-thap/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-hieu-qua-toi-da-lam-mat-cong-nghiep/
 https://thaplammat.vn/tam-tan-nhiet-pvc-thong-tin-ve-cach-su-dung-tam-tan-nhiet/
+https://thaplammat.vn/thap-giai-nhiet-nuoc-cau-truc-va-dac-diem-cua-thap-giai-nhiet-nuoc/
