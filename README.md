@@ -62,3 +62,4 @@ https://thaplammat.vn/thap-giai-nhiet-nuoc-hieu-qua-toi-da-lam-mat-cong-nghiep/
 https://thaplammat.vn/tam-tan-nhiet-pvc-thong-tin-ve-cach-su-dung-tam-tan-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-cau-truc-va-dac-diem-cua-thap-giai-nhiet-nuoc/
 https://thaplammat.vn/thap-giai-nhiet-tpc-giai-phap-hieu-qua-cho-quan-ly-nhiet-do-cong-nghiep/
+https://thaplammat.vn/thap-giai-nhiet-nuoc-nguyen-ly-hoat-dong-va-ung-dung-trong-cong-nghiep/
