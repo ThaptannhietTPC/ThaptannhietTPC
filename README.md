@@ -64,3 +64,4 @@ https://thaplammat.vn/thap-giai-nhiet-nuoc-cau-truc-va-dac-diem-cua-thap-giai-nh
 https://thaplammat.vn/thap-giai-nhiet-tpc-giai-phap-hieu-qua-cho-quan-ly-nhiet-do-cong-nghiep/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-nguyen-ly-hoat-dong-va-ung-dung-trong-cong-nghiep/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-va-loi-ich-mang-lai-cho-he-thong-lam-mat/
+https://thaplammat.vn/tam-tan-nhiet-nuoc-cau-tao-va-nguyen-ly-hoat-dong-cua-tam/
