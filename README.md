@@ -68,3 +68,4 @@ https://thaplammat.vn/tam-tan-nhiet-nuoc-cau-tao-va-nguyen-ly-hoat-dong-cua-tam/
 https://thaplammat.vn/motor-thap-giai-nhiet-dac-diem-va-ung-dung-cua-motor-thap-giai-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-pvc-cac-dac-diem-chinh-cua-tam-tan-nhiet/
 https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-thanh-phan-cua-cac-linh-kien/
+https://thaplammat.vn/thap-tan-nhiet-mot-so-uu-diem-va-nhuoc-diem-cua-thap-tan-nhiet/
