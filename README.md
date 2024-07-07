@@ -74,3 +74,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-mot-so-diem-quan-trong-ve-motor-thap
 https://thaplammat.vn/thap-giai-nhiet-nguyen-ly-hoat-dong-va-cau-tao-thap-giai-nhiet/
 https://thaplammat.vn/tam-tan-nhiet-nuoc-nguyen-ly-hoat-dong-va-cau-tao-tam-tan-nhiet-nuoc/
 https://thaplammat.vn/tam-tan-nhiet-pvc-loi-ich-cua-viec-su-dung-tam-tan-nhiet-pvc/
+https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-cac-cach-bao-tri-cua-cac-linh-kien/
