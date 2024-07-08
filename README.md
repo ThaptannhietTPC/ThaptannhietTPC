@@ -75,3 +75,4 @@ https://thaplammat.vn/thap-giai-nhiet-nguyen-ly-hoat-dong-va-cau-tao-thap-giai-n
 https://thaplammat.vn/tam-tan-nhiet-nuoc-nguyen-ly-hoat-dong-va-cau-tao-tam-tan-nhiet-nuoc/
 https://thaplammat.vn/tam-tan-nhiet-pvc-loi-ich-cua-viec-su-dung-tam-tan-nhiet-pvc/
 https://thaplammat.vn/linh-kien-thap-tan-nhiet-mot-so-cac-cach-bao-tri-cua-cac-linh-kien/
+https://thaplammat.vn/thap-giai-nhiet-nguyen-ly-hoat-dong-ung-dung-va-loi-ich-thap-giai-nhiet/
