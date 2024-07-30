@@ -81,3 +81,4 @@ https://thaplammat.vn/motor-thap-giai-nhiet-dac-diem-va-mot-so-loai-motor-thap-g
 http://tashin.vn/tam-tan-nhiet-pvc-thap-lam-mat-giai-phap-hieu-qua-cho-he-thong-lam-mat-cong-nghiep
 https://thaplammat.vn/motor-thap-giai-nhiet-mot-so-thong-tin-chi-tiet-ve-motor-thap-giai-nhiet/
 http://tashin.vn/thap-giai-nhiet-cong-nghiep-giai-phap-toi-uu-cho-he-thong-lam-mat
+https://thaplammat.vn/motor-thap-giai-nhiet-mot-so-thong-tin-chi-tiet-cua-motor-thap-giai-nhiet/
