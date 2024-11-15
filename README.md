@@ -88,3 +88,4 @@ https://thaplammat.vn/tam-tan-nhiet-nuoc-dac-diem-va-mot-so-ung-dung-trong-thap-
 https://thaplammat.vn/tam-tan-nhiet-cau-tao-va-nguyen-ly-hoat-dong-cua-tam-tan-nhiet/
 https://thaplammat.vn/motor-thap-giai-nhiet-chuc-nang-va-vai-tro-cua-motor-thap-giai-nhiet/
 https://thaplammat.vn/thap-giai-nhiet-nuoc-tpc-toi-uu-hieu-qua-lam-mat-cong-nghiep/
+https://thaplammat.vn/cau-tao-va-tac-dung-cua-tam-tan-nhiet-nuoc-trong-thap-giai-nhiet/
